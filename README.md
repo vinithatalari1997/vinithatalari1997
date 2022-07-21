@@ -1,4 +1,5 @@
--VINITHA REDDY
+VINITHA RADHIKA
+
 
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
