@@ -1,4 +1,4 @@
-VINITHA RADHIKA
+VINITHA RADHIKAS
 
 
 - 👀 I’m interested in ...
